@@ -26,6 +26,8 @@ Death Cab For Cutie - Soul Meets Body
 The Decemberists - Leslie Anne Levine
 The Decemberists - Make You Better
 
+Elton John - Tiny Dancer
+
 José González - Heartbeats
 
  ~ Modest Mouse - Dramamine
